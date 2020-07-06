@@ -1,2 +1,2 @@
 # Sample-
-these are a few sample of my job
+these are a few samples of my job
